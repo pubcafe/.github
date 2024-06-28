@@ -1,1 +1,1 @@
-![banner](https://github.com/pubcafe/.github/assets/122026021/e71a31a4-f79a-43da-a474-0e5595683a7a)
+![banner](https://github.com/pubcafe/.github/assets/122026021/be104ffa-7b9b-4551-a4e1-0cd836d538ae)
